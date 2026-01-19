@@ -1,4 +1,3 @@
-# 👋 Hi, I'm Neha H Savekar
 
 # 👋 Hi, I'm Neha H Savekar  
 
